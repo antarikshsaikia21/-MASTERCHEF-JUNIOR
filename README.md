@@ -32,5 +32,6 @@
      the tikkas for 15 minutes. Spoon some melted butter on the tikkas and cook further fot 5 minutes or untill cooked. Remove the oven.
   7. Sprinkle chaat masala and lemon juice. 
      Serve hot.
-                        -----------------------------------------------------------                         
+     
+                                   -----------------------------------------------------------                         
                   
